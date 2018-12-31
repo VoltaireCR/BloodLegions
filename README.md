@@ -1,0 +1,2 @@
+# BloodLegions
+Clash Royale Clan
